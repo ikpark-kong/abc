@@ -8,3 +8,13 @@ sd
 fs
 dfsdg
 gsd
+m,nm,
+.m.,m
+kkjh
+khk
+;kk;
+;;ll
+;;l
+'l'l
+l'l
+;;
